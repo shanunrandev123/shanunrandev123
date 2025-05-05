@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **machine learning, nlp, Gen AI**
 
-- 📫 How to reach me **shanun.randev@gwu.edu**
+- 📫 How to reach me **randevshanun411@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
